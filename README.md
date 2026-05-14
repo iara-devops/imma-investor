@@ -6,4 +6,4 @@ Overview page for investors and partners.
 
 ---
 
-© 2025 ImmA Tecnologia. All rights reserved.
+© 2026 ImmA Tecnologia. All rights reserved.
